@@ -1,1 +1,1 @@
-# linde-shala
+Mijn naam is Linde Shala en ik ben 21 jaar oud. Als student aan Artevelde Hogeschool studeer ik digitale vormgeving. Creativiteit en behulpzaamheid vormen de kern van mijn persoonlijkheid. Mijn levensmotto is dat opgeven geen optie is.
